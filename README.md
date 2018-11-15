@@ -16,3 +16,4 @@ Hi from Elzette!
 
 
 NICHOLAS T : AI
+Hi from Junki (pencilpal2)
